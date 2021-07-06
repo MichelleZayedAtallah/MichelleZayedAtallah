@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MichelleZayedAtallah
-- 👀 I’m interested in Public Policy, Business and COmmunity Development
+- 👀 I’m interested in Public Policy, Business and Community Development
 - 🌱 I’m currently learning a loooot
 - 💞️ I’m looking to collaborate on building maps on how neighborhoods in DC are changing
 - 📫 How to reach me mz553@georgetown.edu
